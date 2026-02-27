@@ -1,1 +1,1 @@
-# FreelanceFinder-Discovering-opportunities-unlocking-potential
+# FreelanceFinder-Discovering-Opportunities-Unlocking-Potential
